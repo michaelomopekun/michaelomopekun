@@ -1,4 +1,3 @@
-# 💫 About Me:
 👋 Hi, I’m @michaelomopekun<br>📫 How to reach me www.linkedin.com/in/michael-omopekun-6308b6281<br>😄 Pronouns: He/Him
 
 
